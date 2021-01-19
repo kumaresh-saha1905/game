@@ -1,0 +1,1 @@
+Cricket is a very famous game all over the world.India won the ICC world cup in 2011 by the captaincy M.S.Dhoni.It is a popular outdoor game.
